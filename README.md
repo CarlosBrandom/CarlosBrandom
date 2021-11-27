@@ -1,0 +1,2 @@
+-opa sou o carlos
+- �to interessado em criar um serve 24h de terraria
